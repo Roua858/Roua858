@@ -1,7 +1,7 @@
 # Hi there, I'm Roua LABIDI 👋
 
 📊 **Business Intelligence & Analytics Student @IHEC Carthage** | **Ex-President @Marketing Méditerranée Tunisie**  
-🎯 Seeking a 6-month **Data Analyst / BI Internship** in Paris (Feb / March 2027)
+🎯 Seeking a 6-month **Data Analyst / BI Internship** (Feb / March 2027)
 
 ---
 
